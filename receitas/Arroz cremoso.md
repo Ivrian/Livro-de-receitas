@@ -20,4 +20,3 @@ Adicione a cebola, refogando até murchar.
 Acrescente o tomate e o manjericão e deixe refogar por cerca de 3 minutos (sem desmanchar).
 
 Junte o arroz, a cebolinha, o queijo parmesão e o Creme de Leite NESTLÉ e misture bem. Sirva a seguir.
-
